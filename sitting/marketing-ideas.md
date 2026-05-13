@@ -74,7 +74,8 @@ Instead create:
 - chaotic clips
 
 ### CHARACTER-FIRST MARKETING
-1. Fake WhatsApp Chats
+
+## 1. Fake WhatsApp Chats
 
 #### Create designed screenshots:
 - one character asking another for money,
@@ -95,7 +96,7 @@ Character A: “Bro one last plan. Life set.”
 Character B: “You said this before selling my scooter.”
 
 
-2. “Police Evidence” Posters
+## 2. “Police Evidence” Posters
 
 ### Instead of normal character posters. Create:
 
