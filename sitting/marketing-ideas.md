@@ -204,7 +204,17 @@ Hard cuts.
 Serious grading.**
 
 
+### E. Director Vision Reels
 
+The director should become visible.
+
+Post:
+- storyboard vs shot
+- “why we shot this scene like this”
+- chaotic BTS
+- actors improvising
+
+**Producers often discover directors through these.**
 
 
 
